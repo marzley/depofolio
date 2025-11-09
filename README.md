@@ -4,5 +4,5 @@
 
 🤝 Let’s Build Something Great! https://marzley.github.io/depofolio/
 
-I believe in continuous learning, creativity, and teamwork. If you’re looking for someone to design, train, or innovate with technology – I’m your guy.
+I believe in continuous learning, creativity, and teamwork. If you’re looking for someone to design, train, or innovate with technology.
 
